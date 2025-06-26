@@ -2,4 +2,4 @@ Hello, today I come here to announce our new tool for removing asset escrow (teb
 
 Enter in my discord to decrypt you paid resource!
 
-https://discord.gg/RGjKYrtxea
+https://discord.gg/codexgg
